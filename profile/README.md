@@ -6,6 +6,8 @@ That’s exactly why I’m introducing you to this “beast” called **Slope Un
 
 If you want a game that tests your reflexes, keeps you on edge, and doesn’t waste time with unnecessary fuss, Slope Unblocked is the contender you don’t want to miss. Grip your keyboard tight — because a ruthless speed race is about to begin!
 
+👉 **[Jump in and play Slope Unblocked now — free, no downloads, no limits!](https://1kb.link/GnqTiL)**
+
 ## Simple game? Think again.
 
 Slope is an endless runner where you control a neon ball rolling down a constantly shifting slope that gets steeper and trickier by the second, with obstacles popping up left and right.
